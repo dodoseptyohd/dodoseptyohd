@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Dodo Septyo Hadi
+# 👋 Haiii, Aku Dodo Septyo Hadi
 
 💻 Web Developer | 🌱 Belajar Fullstack & Android Development   
 
